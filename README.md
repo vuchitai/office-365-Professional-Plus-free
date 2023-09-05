@@ -1,1 +1,1 @@
-khi bạn vào trang này, bạn cần tải file MAS_AIO về và chạy dưới quyền quản trị viên và chọn theo những gì bạn đang cần nhé. Chúc bạn thành công
+khi bạn vào trang này, bạn cần tải file MAS_AIO về và chạy dưới quyền quản trị viên và chọn theo những gì bạn đang cần để crack được bản quyền nhé, bản quyền sẽ hết hạn sau 180 ngày nên bạn cần giữu chúng lại. Chúc bạn thành công
